@@ -43,10 +43,10 @@
 
 ------
 
-##https://github.com/WiGoGamings##
+https://github.com/WiGoGamings
 ---
-##7863821366##
+7863821366
 ---
-##https://www.instagram.com/wigo.gamings/##
+https://www.instagram.com/wigo.gamings/
 ---
-##https://www.facebook.com/profile.php?id=61550258372688##
+https://www.facebook.com/profile.php?id=61550258372688
